@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on random stuff which I use
 - 📫 How to reach me: 
   - Important or Project? -> kb01.de@pm.me
-  - Just wanna chat? -> Telegram @kb01guy / Discord kB01#5756 / Twitter @kB01guy
+  - Just wanna chat? -> Telegram @kb01guy / Discord kB01#5756
 
 
 
