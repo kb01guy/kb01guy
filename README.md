@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on random stuff which I use
 - 📫 How to reach me: 
   - Important or Project? -> kb01@kb-one.de
-  - Just wanna chat? -> Signal kb_one.01 / Discord @kB01guy
+  - Just wanna chat? -> [Signal kb_one.01](https://signal.me/#eu/6I9lA5wKtVaRP95HRZnF7b83mdlD4bpV-jlrMYQ0HI_7nx9DJHhEc5yhcXY4lA3U) / [Whatsapp kb-one](https://wa.me/message/ILPT7TSYEW2P1/) / Discord @kB01guy
 
 
 
