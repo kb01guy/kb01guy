@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning various techniques of character creation in blender
 - 💞️ I’m looking to collaborate on random stuff which I use
 - 📫 How to reach me: 
-  - Important or Project? -> kb01.de@pm.me
-  - Just wanna chat? -> Telegram @kb01guy / Discord kB01#5756
+  - Important or Project? -> kb01@kb-one.de
+  - Just wanna chat? -> Signal kb_one.01 / Discord @kB01guy
 
 
 
